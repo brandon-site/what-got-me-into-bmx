@@ -114,3 +114,48 @@ It’s about becoming a stronger athlete, a healthier person, and the best rider
 That’s why I continue to train in the gym, and that’s why I’ll continue riding freestyle BMX.
 
 Because together, they push me to improve—not just physically, but mentally as well.
+When I first started, I rode because it was exciting. Everything was new. Every trick I learned felt like a huge accomplishment, and every session gave me another reason to get back on my bike the next day.
+
+As I’ve gotten older, my reasons for riding have become much deeper.
+
+Freestyle BMX constantly reminds me that growth comes from embracing challenges rather than avoiding them. Every new trick begins the same way—with uncertainty. You don’t know exactly how long it will take or how many attempts you’ll need before everything finally comes together.
+
+That process has changed the way I approach life.
+
+I’ve learned that meaningful progress rarely happens overnight. It comes from being patient, staying disciplined, learning from mistakes, and continuing to move forward even when improvement feels slow.
+
+Another reason I still ride is because BMX gives me something that very few activities can.
+
+It demands complete focus.
+
+When I’m riding, I’m not thinking about yesterday or worrying about tomorrow. My attention is entirely on the present moment—my speed, my balance, my timing, and the movement I’m trying to perform. That level of focus is something I genuinely appreciate because it allows me to disconnect from distractions and fully immerse myself in what I’m doing.
+
+I also love that freestyle BMX has no finish line.
+
+There will always be another trick to learn, another line to create, another obstacle to overcome, and another skill to develop. That endless opportunity for growth is what keeps the sport exciting year after year.
+
+Over time, I’ve also realized that BMX isn’t just about individual accomplishments.
+
+It’s about the community.
+
+I’ve met riders from different backgrounds who all share the same passion for progressing, encouraging one another, and celebrating each other’s success. It’s a sport built around creativity, perseverance, and mutual respect.
+
+Today, I ride for many reasons.
+
+I ride because I enjoy challenging myself.
+
+I ride because I love learning.
+
+I ride because it keeps me physically active and mentally engaged.
+
+I ride because every session teaches me something new about patience, resilience, and discipline.
+
+Most importantly, I ride because I genuinely enjoy the process.
+
+Landing a new trick is rewarding, but the real value comes from everything you learn while working toward it.
+
+That’s why freestyle BMX continues to be such an important part of my life.
+
+It’s not just a sport I participate in.
+
+It’s a lifelong journey of learning, improvement, and personal growth.
