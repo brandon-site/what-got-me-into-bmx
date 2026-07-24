@@ -1,5 +1,5 @@
 # what-got-me-into-bmx My Freestyle BMX Journey
-
+Hi, I'm Brandon Lewis and today I'm here to talk about what got me into BMX.
 People often ask me what inspired me to start riding freestyle BMX.
 
 To answer that, I have to go back to when I was a kid.
